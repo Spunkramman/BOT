@@ -1,2 +1,1 @@
-# BOT
-asdasdasdasdasdsadasd
+# Selamın Aleyküm Mümin Kardeşim
